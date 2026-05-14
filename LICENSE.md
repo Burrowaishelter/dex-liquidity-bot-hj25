@@ -1,4 +1,4 @@
-# 
+# Get the ultimate dex sniper bot with AI-powered dex sniper bot | cross-chain-arbitrage + liquidity-pool-analysis. Featuring cross-chain-arbitrage and liquidity-pool-analysis, it's
 
 
 
